@@ -2,4 +2,4 @@
 - 👀 I’m interested in Coding Languages
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on Nothing with no one.
-- 📫 How to reach me Discord: Head Huncho#0001
+- 📫 How to reach me Discord: Head Huncho#0001 | Discord Server: https://discord.gg/nv-nirvana
